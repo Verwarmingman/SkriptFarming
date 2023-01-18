@@ -27,7 +27,7 @@ Purchase Robots: https://tinyurl.com/3fw3uynm
 
 Purchase Fishing: https://tinyurl.com/ym6zwtfr
 
-Purchase Farming: ADD BUILTBYBITLINK
+Purchase Farming: https://tinyurl.com/jtjjxdz8
 
 Purchase Tutorials: https://tinyurl.com/2fzjj658
 
